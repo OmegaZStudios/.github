@@ -1,5 +1,7 @@
-## Hi there 👋
-
+## Hi there! 👋
+## We make roblox experiences!
+## Fun facta: our team does not like hawaiian pizza.
+## Our social [media](linktr.ee/omegazstudios)
 <!--
 
 **Here are some ideas to get you started:**
