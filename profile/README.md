@@ -1,5 +1,5 @@
 ## Hi there! 👋
-## We make roblox experiences! Hit us at our social [media](linktr.ee/omegazstudios)!
+## We make roblox experiences! Hit us at our social [media](https://linktr.ee/omegazstudios)!
 <!--
 
 **Here are some ideas to get you started:**
